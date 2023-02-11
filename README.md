@@ -6,6 +6,9 @@
 
 [![Follow](https://te.legra.ph/file/f1edc406e8b2b096ec9e6.jpg)](www.instagram.com/ikx7.a)
 
+|[Fork Repo](https://github.com/ikx7a/Verified/fork)
+|---
+
 </div>
 
 How to make?
